@@ -6,4 +6,5 @@
 [飞鸟云](https://feiniaoyun.xyz/#/register?code=PNK4jwz0)
 
 
-[赔钱机场](https://xn--mes358aby2apfg.com/register?code=PKOfgDXs&cover=sfw)
+[赔钱机场](https://xn--mes358aby2apfg.com/register?code=LNHkAIUO&cover=sfw)
+
